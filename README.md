@@ -10,7 +10,7 @@ Tech enthusiast dedicated to coding and exploring newer technology.
 
 - 💻 Passionate developer interested in modern software development and emerging tech.
 - 📬 How to reach me: **himanshuburdak05@gmail.com**
-- 💬 Ask me about: Web Development, Programming, and Tech Innovations.
+- 💬 Ask me about: Programming, and Tech Innovations.
 
 ---
 
