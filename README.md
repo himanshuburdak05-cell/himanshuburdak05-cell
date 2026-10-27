@@ -17,5 +17,5 @@ Tech enthusiast dedicated to coding and exploring newer technology.
 ### 🌐 Connect with Me
 
 - **LinkedIn:** [Himanshu Burdak](https://www.linkedin.com/in/himanshu-burdak-6028a8378)
-- **Instagram:** [@himanshu07dev.exe](https://www.instagram.com/himanshu07dev.exe)
+- **Instagram:** https://www.instagram.com/him07.exe?psln=MXYyeDdubWkwZGN6dw==
 - **Email:** [himanshuburdak05@gmail.com](mailto:himanshuburdak05@gmail.com)
